@@ -1,1 +1,1 @@
-
+Ice cream is a sweetened frozen food typically eaten as a snack or dessert. Ice cream may be served in dishes, for eating with a spoon, or licked from edible cones. Ice cream may be served with other desserts, such as apple pie, or as an ingredient in ice cream floats, sundaes, milkshakes, ice cream cakes and even baked items.
